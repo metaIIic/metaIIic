@@ -12,4 +12,15 @@
 <img width="17%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/UltronStrange"">
 </p>
 
+</p>
+below are some of my greatest achievments and they make me very happy !
+</p>
+
+
+<p align="center">
+<img width="37%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/Hi"> <img width="23%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/HELLO"> <br>
+  <img width="37%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/ST4">
+</p> 
+
+
 
