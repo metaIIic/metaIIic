@@ -6,6 +6,6 @@
 
 <img width="70%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/MetallicMagic"><br>
 
-<a href="https://rentry.co/jotaro" rel="nofollow">rentry.co/jotaro&ZeroWidthSpace;</a>　<a href="https://rentry.co/iggy" rel="nofollow">rentry.co/iggy&ZeroWidthSpace;</a>　
+<a href="https://rentry.co/jotaro" rel="nofollow">rentry.co/jotaro&ZeroWidthSpace;</a>　<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron&ZeroWidthSpace;</a>　
 
 <img width="15%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/Tiny">
