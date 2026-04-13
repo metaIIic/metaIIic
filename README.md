@@ -4,8 +4,5 @@
 
 ![](https://komarev.com/ghpvc/?username=metaIIic&style=flat&color=aa2526&base=4837&label=i+am+a+robot) 
 
-<img width="70%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/MetallicMagic"><br>
 
-<a href="https://rentry.co/homelander" rel="nofollow">rentry.co/homelander&ZeroWidthSpace;</a>　<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron&ZeroWidthSpace;</a>　
 
-<img width="15%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/Tiny">
